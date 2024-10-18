@@ -1,0 +1,5 @@
+![user_avatar](https://github.com/user-attachments/assets/b94457f0-4fa7-47cc-8de6-3c5abef4fb95)
+![logo](https://github.com/user-attachments/assets/226287e4-35d0-4068-af4f-f7a3cd246cc3)
+![background1](https://github.com/user-attachments/assets/f46a54d1-641b-4ca6-b771-371884fa7c30)
+![background](https://github.com/user-attachments/assets/a8ac1fc8-6756-44cd-aad5-fbb6b081a70d)
+![ai_avatar](https://github.com/user-attachments/assets/e6a28d3d-4456-4470-9889-fac52edae10f)
